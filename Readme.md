@@ -17,6 +17,5 @@ Software developer with intense learning attitude through open-source codebases.
 
 
 
-[![](https://visitcount.itsvg.in/api?id=Raju kadel&icon=0&color=0)](https://visitcount.itsvg.in)
 
 
